@@ -1,4 +1,4 @@
-
+grow a garden top Scripts is the best grow a garden Script, featuring auto-collect and custom skins. Safe and powerful for all your needs.
 
 
 
